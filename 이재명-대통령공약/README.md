@@ -4,7 +4,7 @@
 
 ## 지키나 안지키나 감시용..
 
-## 취임이후 [2025년 9월 16일 123대 국정과제](https://github.com/minsuklee/Archive/blob/main/%EC%9D%B4%EC%9E%AC%EB%AA%85-%EB%8C%80%ED%86%B5%EB%A0%B9%EA%B3%B5%EC%95%BD/123%E1%84%83%E1%85%A2_%E1%84%80%E1%85%AE%E1%86%A8%E1%84%8C%E1%85%A5%E1%86%BC%E1%84%80%E1%85%AA%E1%84%8C%E1%85%A6_250916.pdf)를 발표
+### 취임 이후 100일쯤 지나, [2025년 9월 16일 123대 국정과제](https://github.com/minsuklee/Archive/blob/main/%EC%9D%B4%EC%9E%AC%EB%AA%85-%EB%8C%80%ED%86%B5%EB%A0%B9%EA%B3%B5%EC%95%BD/123%E1%84%83%E1%85%A2_%E1%84%80%E1%85%AE%E1%86%A8%E1%84%8C%E1%85%A5%E1%86%BC%E1%84%80%E1%85%AA%E1%84%8C%E1%85%A6_250916.pdf)를 발표
 
 ## 1. 공약 링크
 
